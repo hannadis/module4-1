@@ -1,0 +1,1 @@
+I did a coming soon page. I used my friends logo and added her social media to this. 
